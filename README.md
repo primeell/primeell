@@ -1,6 +1,7 @@
 
 
-📫 How to reach me 24410200007@dinamika.ac.id/gibranfahmii345@gmail.com
+📫 How to reach me 24410200007@dinamika.ac.id
+
 
 
 <!---
