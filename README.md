@@ -1,4 +1,3 @@
- Undika peduli scholarship awardee at computer engineering
 
 
 📫 How to reach me 24410200007@dinamika.ac.id/gibranfahmii345@gmail.com
